@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-- 10 pounds ground beef
+- 20 pounds ground beef
 - 5 eggs, beaten
 - 3/4 cup dry bread crumbs
 - 3 tablespoons evaporated milk
